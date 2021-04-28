@@ -9,3 +9,4 @@ Telegram : https://t.mr/zxyzu
 <br>Email : renjazuexploit@gmail.com
 
 See Here For How To Install <br>
+<a href="https://iam-ren.blogspot.com/2021/04/wordpress-plugin-adning-advertising-155.html" target="_blank">Here!</a> 
